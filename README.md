@@ -1,3 +1,4 @@
+<meta name="google-site-verification" content="g8ZfeWnzpFYbdO8up29kRORHda0cK0PSPvaVAVtO-Ks" />
 # The Power of Intellectual Property and Patents: Empowering Inventors
 An article on how Intellectual Property (IP) empowers Inventors
 
